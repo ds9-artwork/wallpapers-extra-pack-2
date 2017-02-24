@@ -1,1 +1,1 @@
-# netrunner-wallpapers-pack-2
+# wallpapers-pack-2
